@@ -1,1 +1,0 @@
-# paulandjakepowerwash.github.io
